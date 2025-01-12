@@ -1,1 +1,0 @@
-# jatjat1.dev
